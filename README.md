@@ -1,2 +1,1 @@
-# qwq
-qwqwqwq
+# [qwq](https://akashineko.github.io/qwq/)
